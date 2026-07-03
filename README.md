@@ -53,7 +53,7 @@ Phase 4 (M10-12): Optimize   → Replicate or exit
 
 ## 📞 Contact
 
-**Prepared for:** Valkyrie | Aras Integrasi Sdn Bhd  
+**Prepared for:** Valkyrie | Socialyana  
 **Date:** June 2026  
 **Git:** https://github.com/gumdr0pz/social-media-agency-runway
 

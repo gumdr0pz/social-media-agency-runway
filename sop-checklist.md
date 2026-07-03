@@ -438,4 +438,4 @@ Questions? Just reply here! 😊
 
 ---
 
-*Prepared by Aura for Valkyrie | Aras Integrasi Sdn Bhd | June 2026*
+*Prepared by Aura for Valkyrie | Socialyana | June 2026*
